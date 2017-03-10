@@ -2,7 +2,7 @@
 
 Party in Montreal!
 
-Notman House
+Notman House (51 Sherbrooke Ouest)
 
 Friday, March 10, 2017
 
